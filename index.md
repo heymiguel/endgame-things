@@ -1,3 +1,21 @@
+```
+SPOILERS BE HERE. YOU HAVE BEEN WARNED.
+```
+
+I finished my Avengers Endgame watch approximately 24 hours ago. My father - someone who isn't very spontaneous - asked me if he should watch it. "Yes," i answered over the instant messenger. He then asked me "How was it?" "Like saying goodbye to an old friend," I typed. I didn't mean to be cold, terse, or blunt. I meant what I said when it felt like saying goodbye; the words to describe what I was feeling in the seconds and minutes after I finished the bladder-marathon that is Avengers: Endgame simply were not available. 
+
+### A Spiritual Experience
+
+The ticketing system here in Toronto collapsed under the weight of everyone hitting `F5` repeatedly when ticket sales went live. So, i prayed to the Marvel gods, whispering my silent request to get tickets every time I refreshed the Cineplex webpage. The first part of my nerdy pilgrimage took *3.5 hours* and in a blur of motion I managed to get tickets for Saturday.   
+
+- mantra of refreshing
+- emptying of self
+- cleansing of self through abstinence and fasting (the internet, reddit, and the limited social media sites that i go through)
+- day of the ritual there was a fasting of the senses (notably sound)
+
+
+
+
 ## Welcome to GitHub Pages
 
 ## this is a second header

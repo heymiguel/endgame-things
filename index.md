@@ -6,11 +6,9 @@ I finished my Avengers Endgame watch approximately 24 hours ago. My father - som
 
 ## A Spiritual Experience
 
-#### Thoughts and Prayers
 The ticketing system here in Toronto collapsed under the weight of everyone hitting `F5` repeatedly when ticket sales went live. So, i prayed to the Marvel gods, whispering my silent request to get tickets every time I refreshed the Cineplex webpage. THis first part of my pilgrimage took *3.5 hours* of prayer. At minute 215, with my credit card still warm from the speed at which i had to complete the online transaction (else lose my 5 minute grace period online hold), I started thinking about what other preparation I needed to complete.
 
-####Cleansing the self
-Before one undergoes a spiritual dialogue, most world religions recommend some sort of _cleansing of the soul_ or similar preparation; an emptying of self and an abstinence from worldly things. Knowing that there would be some on the internet that would be less tactful and polite (read: _assholes_ and _trolls_), the first piece of my ritual abstinence would be to mute the internet in the days between opening day and saturday. Adding to this, there would be individuals in my place of work that would discuss this in vague and "non-contextual spoiler" terms - so I had to add that to the things I would cut out of my life, at least temporarily.
+Before one undergoes a spiritual dialogue, most world religions recommend some sort of _cleansing of the soul_ or similar preparation; an emptying of self and an abstinence from worldly things. Knowing that there would be some on the internet that would be less tactful and polite (read: _assholes_ and _trolls_), the first piece of my ritual abstinence would be to mute the internet in the days between opening day and saturday. The second piece would involve individuals in my place of work that may discuss this in vague and "non-contextual spoiler" terms - so I had to add that to the things I would cut out of my life, at least temporarily.
 
 Avengers Fasting:
 - no reddit
@@ -18,14 +16,57 @@ Avengers Fasting:
 - no twitter
 - no talking to people in the office unless it was purely work
 - no staying in work conversations that even remotely resembled comic book talk
-- no youtube (notably, people were uploading leaked fancams of the final fight and of **that Mjolnir** scene)
+- no youtube (notably, people were uploading leaked fancams of the final fight and of **that Mjolnir** scene), since the thumbnails were spoilers
 
 Four days of that would lead to a final day of additional fasting:
 - No radio in the car heading to the cinema
 - noise cancelling headphones playing loud music while on the subway
 - head down while walking to the cinema. (Because theres some people who put spoilers on signs.)
 
-I would have to quit the internet (which we all know is at the top of Maslow's hierarchy of needs) for the better part of a week, and give up hearing and some vision on the Saturday. Thankfully, Yum was a recent convert to the MCU (i'm working on it) and assisted me to the cinema. We sat together and I whispered a few more choice words to the Marvel gods.
+I quit the internet (which we all know is at the top of Maslow's hierarchy of needs) for the better part of a week, and gave up hearing and some vision on the Saturday. Thankfully, Yum was a recent convert to the MCU (i'm working on it) and assisted me to the cinema. We sat together and I whispered a few more choice words to the Marvel gods.
+
+My hands were a bit clammy and I noted an elevated heart rate as I watched the last of the forgettable commercials and trailers fade to black. 
+
+## Macro level thoughts? (need a better title)
+Why was Thanos so good in a fight (and able to take on the big three?)
+Technique and power vs raw power
+
+
+## Tidbits that were fun
+
+rescue!
+stormbreaker's relaxed requirements!
+Danver's haircut!
+"on your left!"
+Hail Hydra
+Casually Solving time travel
+
+## Story Arcs
+
+#### Done Poorly
+
+#### Done Well
+
+#### Mixed feelings
+
+
+
+
+Story Arcs.
+
+Done poorly:
+Black Widow
+Hawkeye.
+Thor. (mostly because Ragnarok really was the turning point for a right and proper characterization of the character.
+
+Done well:
+Cap.
+
+Mixed feelings:
+Iron Man.
+
+
+Finally,
 
 - mantra of refreshing
 - emptying of self

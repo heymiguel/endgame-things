@@ -25,9 +25,19 @@ Four days of that would lead to a final day of additional fasting:
 
 I quit the internet (which we all know is at the top of Maslow's hierarchy of needs) for the better part of a week, and gave up hearing and some vision on the Saturday. Thankfully, Yum was a recent convert to the MCU (i'm working on it) and assisted me to the cinema. We sat together and I whispered a few more choice words to the Marvel gods.
 
-My hands were a bit clammy and I noted an elevated heart rate as I watched the last of the forgettable commercials and trailers fade to black. 
+My hands were clammy and I noted an elevated heart rate as I watched the last of the forgettable commercials and trailers fade to black. 
 
-## Macro level thoughts? (need a better title)
+## The Not-tidbits (need a better title)
+#### Did I like it?
+
+If this is the first Marvel movie you're seeing, it's a hot mess. Nothing will make sense. 
+
+If you come into this knowing some of these characters took 11 years to develop? It's a lot better.
+
+If you're coming into this expecting _GRATUITOUS_ amounts of fanservice? 15/10 would Avengers: Endgame again.
+
+#### Why was Thanos so good in a fight? 
+
 Why was Thanos so good in a fight (and able to take on the big three?)
 Technique and power vs raw power
 

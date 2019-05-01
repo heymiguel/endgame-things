@@ -10,6 +10,7 @@ The ticketing system here in Toronto collapsed under the weight of everyone hitt
 
 Before one undergoes a spiritual dialogue, most world religions recommend some sort of _cleansing of the soul_ or similar preparation; an emptying of self and an abstinence from worldly things. Knowing that there would be some on the internet that would be less tactful and polite (read: _assholes_ and _trolls_), the first piece of my ritual abstinence would be to mute the internet in the days between opening day and saturday. The second piece would involve individuals in my place of work that may discuss this in vague and "non-contextual spoiler" terms - so I had to add that to the things I would cut out of my life, at least temporarily.
 
+```
 Avengers Fasting:
 - no reddit
 - no facebook
@@ -17,13 +18,16 @@ Avengers Fasting:
 - no talking to people in the office unless it was purely work
 - no staying in work conversations that even remotely resembled comic book talk
 - no youtube (notably, people were uploading leaked fancams of the final fight and of **that Mjolnir** scene), since the thumbnails were spoilers
+```
 
+```
 Four days of that would lead to a final day of additional fasting:
 - No radio in the car heading to the cinema
 - noise cancelling headphones playing loud music while on the subway
 - head down while walking to the cinema. (Because theres some people who put spoilers on signs.)
+```
 
-I quit the internet (which we all know is at the base of Maslow's hierarchy of needs) for the better part of a week, and gave up hearing and some vision on the Saturday. Thankfully, Yum was a recent convert to the MCU (i'm working on it) and assisted me to the cinema. We sat together and I whispered a few more choice words to the Marvel gods.
+I quit the internet (which we all know is the real first level of Maslow's hierarchy of needs) for the better part of a week, and gave up hearing and some vision on the Saturday. Thankfully, my wife was a recent convert to the MCU (i'm working on it) and assisted me to the cinema. We sat together and I whispered a few more choice words to the Marvel gods.
 
 My hands were clammy and I noted an elevated heart rate as I watched the last of the forgettable commercials and trailers fade to black. 
 
@@ -33,13 +37,23 @@ My hands were clammy and I noted an elevated heart rate as I watched the last of
 If this is the first Marvel movie you're seeing, it's a hot mess. Nothing will make sense. 
 
 If you come into this knowing some of these characters took 11 years to develop? It's a lot better.
-
 If you're coming into this expecting _GRATUITOUS_ amounts of fanservice? 15/10 would Avengers: Endgame again.
 
 #### Why was Thanos so good in a fight? 
 
-Why was Thanos so good in a fight (and able to take on the big three?)
-Technique and power vs raw power
+There's a lot of discussion about how good Thanos was against the Big Three, and against everyone in particular. I think there's a reason why Thor and Tony got somewhere but never _ultimately_ could beat him, even together. It's the same reason that the Hulk couldnt beat Thanos (and if you watch infinity war again you'll see). Thor and Tony have used  _raw power_ to overwhelm their opponents. 
+
+In the case of Tony he defaults to this if there's no prep time. He beat Iron Monger because he had previous knowledge of the armor's weakness. He and Rhodey beat Vanko by essentially shooting kamehamehas at each other. He threw all his big suits at Killan. He used the Bleeding edge armor to create a massive repulsor beam to shoot Supergiant. Even with Iron Man round 1 vs Thanos it was everything into beams to see if he could survive.
+
+In the case of Thor this is even more obvious. Thor's been a heavy hitter and that's his go to move. Lightning blasts abound.
+
+Thanos knows how to fight. He's trained. If you look at his close up game with Hulk, there's weaving and body shots there. Its also convenient that Thanos is crazy freaking strong. 
+
+Tony and Thor teamed up to shoot Thanos in that cool scene (a homage to their first fight where Thor supercharged Tony), dumping even more power. Thanos did what you do if struck with a heavy blow - you parry, deflect, and dodge. Then he dismantled them with technique. 
+
+This is why Mjolnir-Cap was so much more successful (to a point). The *power of Thor coupled with the technique* of the world's greatest soldier. 
+
+Sidebar: Mjolnir-Cap was a big moment for a lot of people. Personally (and you can ask my wife) I squealed like an excited puppy when Thor dual-wielded Stormbreaker and Mjolnir. T
 
 
 ## Tidbits that were fun

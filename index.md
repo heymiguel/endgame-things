@@ -54,26 +54,30 @@ Casually Solving time travel
 ## Story Arcs
 
 #### Done Poorly
+Done poorly:
+Black Widow
+Hawkeye.
 
 #### Done Well
+Done well:
+Cap.
+
 
 #### Mixed feelings
+Thor. (mostly because Ragnarok really was the turning point for a right and proper characterization of the character.
+
+Mixed feelings:
+Iron Man.
+
 
 
 
 
 Story Arcs.
 
-Done poorly:
-Black Widow
-Hawkeye.
-Thor. (mostly because Ragnarok really was the turning point for a right and proper characterization of the character.
 
-Done well:
-Cap.
 
-Mixed feelings:
-Iron Man.
+
 
 
 Finally,

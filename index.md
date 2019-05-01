@@ -23,7 +23,7 @@ Four days of that would lead to a final day of additional fasting:
 - noise cancelling headphones playing loud music while on the subway
 - head down while walking to the cinema. (Because theres some people who put spoilers on signs.)
 
-I quit the internet (which we all know is at the top of Maslow's hierarchy of needs) for the better part of a week, and gave up hearing and some vision on the Saturday. Thankfully, Yum was a recent convert to the MCU (i'm working on it) and assisted me to the cinema. We sat together and I whispered a few more choice words to the Marvel gods.
+I quit the internet (which we all know is at the base of Maslow's hierarchy of needs) for the better part of a week, and gave up hearing and some vision on the Saturday. Thankfully, Yum was a recent convert to the MCU (i'm working on it) and assisted me to the cinema. We sat together and I whispered a few more choice words to the Marvel gods.
 
 My hands were clammy and I noted an elevated heart rate as I watched the last of the forgettable commercials and trailers fade to black. 
 

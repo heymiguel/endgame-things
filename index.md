@@ -2,7 +2,7 @@
 SPOILERS BE HERE. YOU HAVE BEEN WARNED.
 ```
 
-I finished my Avengers Endgame watch approximately 24 hours ago (When this was initially written). My father - someone who isn't very spontaneous - asked me if he should watch it. "Yes," i answered over the instant messenger. He then asked me "How was it?" "Like saying goodbye to an old friend," I typed. I didn't mean to be cold, terse, or blunt. I meant what I said when it felt like saying goodbye; the words to describe what I was feeling in the seconds and minutes after I finished the bladder-marathon that is Avengers: Endgame simply were not available. 
+I finished watching Avengers Endgame watch a few days ago. My father - someone who isn't very spontaneous - asked me if he should watch it. "Yes," i answered over the instant messenger. He then asked me "How was it?" "Like saying goodbye to an old friend," I typed. I didn't mean to be cold, terse, or blunt. I meant what I said when it felt like saying goodbye; the words to describe what I was feeling in the seconds and minutes after I finished the bladder-marathon that is Avengers: Endgame simply were not available. 
 
 ## A Spiritual Experience
 
@@ -43,7 +43,7 @@ If you're coming into this expecting _GRATUITOUS_ amounts of fanservice? 15/10 w
 
 There's a lot of discussion about how good Thanos was against the Big Three, and against everyone in particular. I think there's a reason why Thor and Tony got somewhere but never _ultimately_ could beat him, even together. It's the same reason that the Hulk couldnt beat Thanos (and if you watch infinity war again you'll see). Thor and Tony have used  _raw power_ to overwhelm their opponents. 
 
-In the case of Tony he defaults to this if there's no prep time. He beat Iron Monger because he had previous knowledge of the armor's weakness. He and Rhodey beat Vanko by essentially shooting kamehamehas at each other. He threw all his big suits at Killan. He used the Bleeding edge armor to create a massive repulsor beam to shoot Supergiant. Even with Iron Man round 1 vs Thanos it was everything into beams to see if he could survive.
+In the case of Tony he defaults to this if there's no prep time. He beat Iron Monger because he had previous knowledge of the armor's weakness. He and Rhodey beat Vanko by essentially shooting kamehamehas at each other. He threw all his big suits at Killan. He used the Bleeding edge armor to create a massive repulsor beam to shoot Supergiant. Even with Iron Man round 1 vs Thanos it was everything into beams to see if he could survive. (With prep time, the Batman argument holds - Tony can outsmart the best of em.) 
 
 In the case of Thor this is even more obvious. Thor's been a heavy hitter and that's his go to move. Lightning blasts abound.
 
@@ -51,9 +51,9 @@ Thanos knows how to fight. He's trained. If you look at his close up game with H
 
 Tony and Thor teamed up to shoot Thanos in that cool scene (a homage to their first fight where Thor supercharged Tony), dumping even more power. Thanos did what you do if struck with a heavy blow - you parry, deflect, and dodge. Then he dismantled them with technique. 
 
-This is why Mjolnir-Cap was so much more successful (to a point). The *power of Thor coupled with the technique* of the world's greatest soldier. 
+This is why Mjolnir-Cap was so much more successful (to a point). The *power of Thor coupled with the technique* of the world's greatest soldier. It's not just overwhelmingly powerful energy - it's the same energy focused to do specific things. 
 
-Sidebar: Mjolnir-Cap was a big moment for a lot of people. Personally (and you can ask my wife) I squealed like an excited puppy when Thor dual-wielded Stormbreaker and Mjolnir. T
+Sidebar: Mjolnir-Cap was a big moment for a lot of people. Personally (and you can ask my wife) I squealed like an excited puppy when Thor dual-wielded Stormbreaker and Mjolnir.
 
 
 ## Tidbits that were fun

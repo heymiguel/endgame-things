@@ -2,7 +2,7 @@
 SPOILERS BE HERE. YOU HAVE BEEN WARNED.
 ```
 
-I finished my Avengers Endgame watch approximately 24 hours ago. My father - someone who isn't very spontaneous - asked me if he should watch it. "Yes," i answered over the instant messenger. He then asked me "How was it?" "Like saying goodbye to an old friend," I typed. I didn't mean to be cold, terse, or blunt. I meant what I said when it felt like saying goodbye; the words to describe what I was feeling in the seconds and minutes after I finished the bladder-marathon that is Avengers: Endgame simply were not available. 
+I finished my Avengers Endgame watch approximately 24 hours ago (When this was initially written). My father - someone who isn't very spontaneous - asked me if he should watch it. "Yes," i answered over the instant messenger. He then asked me "How was it?" "Like saying goodbye to an old friend," I typed. I didn't mean to be cold, terse, or blunt. I meant what I said when it felt like saying goodbye; the words to describe what I was feeling in the seconds and minutes after I finished the bladder-marathon that is Avengers: Endgame simply were not available. 
 
 ## A Spiritual Experience
 

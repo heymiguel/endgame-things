@@ -86,9 +86,11 @@ This, by far was my favourite bit of fanservice. Mostly because it follows a _de
 
 #### Done Poorly
 _Black Widow and Hawkeye_
+
 Honestly, BW got the shaft in terms of a story arc. Marvel just didn't know what to do with her, from potential love interest to finder of lost teammates to dealing with depression / PTSD, and finally "to finding her purpose with a final sacrifice." Besides, I think Natasha and Clint both got screwed, and could have gotten away with a bit of Infinity Stone Lawyering (more on this later.)
 
 _Hawkeye er *cough* Ronin._
+
 I get that he lost everyone and became an enraged killer of bad people - but I feel they turned him into Ronin only to get him into the Rule of Cool. I think spearing people from a distance with arrows would have been just as deadly and even more impactful, considering bow usage was foreshadowed early in the movie. Like Ponci said: "He could have done all of that as Hawkeye." 
 
 ```

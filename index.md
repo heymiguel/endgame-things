@@ -32,7 +32,7 @@ I quit the internet (which we all know is the real first level of Maslow's hiera
 
 My hands were clammy and I noted an elevated heart rate as I watched the last of the forgettable commercials and trailers fade to black. 
 
-## The Not-tidbits (need a better title)
+## Unpacking My Thoughts
 #### Did I like it?
 
 If this is the first Marvel movie you're seeing, it's a hot mess. Nothing will make sense. A great exercise to do on the rewatch is imagine if _this_ is the first MCU movie you're seeing.  To quote my wife (who has seen some MCU movies beforehand), "Just imagine, if you never saw any of this before! *A VAN SPIT OUT A MAN!" *
@@ -70,8 +70,8 @@ There was an interivew with the Russos that mentioned Stormbreaker not having th
 
 
 #### Danver's haircut
-People be shittin' on Carol's haircut; this is just an opinion of one - Short hair === hot. 
-
+People be shittin' on Carol's haircut. 
+My A++ defense: (this is just an opinion of one) Short hair === hot. 
 
 #### Hail Hydra
 This is subversion done right. They even got the shot where Crossbones is going for his baton/ sidearm. 
@@ -95,8 +95,8 @@ I get that he lost everyone and became an enraged killer of bad people - but I f
 Infinity Stone Lawyering
 
 To get the soul stone you have to lose something you truly love. 
-I would have loved to see Hawkeye walk up to Red Skull, thrash at him, shoot arrows, or slash him or whatever saying -
-"Then I have paid this price threefold." 
+I would have loved to see Hawkeye walk up to Red Skull, scream at him, shoot arrows, or slash him or whatever saying -
+"I HAVE ALREADY LOST EVERYTHING" (i'm bad at dialogue.) 
 
 Clint lost thrice. 
 
@@ -125,8 +125,6 @@ Hoooo boy. My fave character and the source of this bias. (Been a fan of shellhe
 Conveniently, we forget that any number of the sorcerors could sling ring the slight-of-handed gauntlet out of Tony's hands, and unto Hulk's good arm. This also sets up the "Hulk vs Thanos" rematch that everyone was begging for, by letting Banner outhink Thanos, saving Tony! Yay!
 
 I know, I know. "You can rest now," Pepper says - which is the real end of his arc to protect the world from everything. I just don't like it when my fave characters _have_ to die. (I'm looking at you, Maximus. (from Gladiator) You should have lived.) 
-
-
 
 
 ## Conclusion / TLDR;

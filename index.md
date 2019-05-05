@@ -80,7 +80,7 @@ This is subversion done right. They even got the shot where Crossbones is going 
 Tony Stark solved time travel by spending an extra couple of hours in his garage. How much have you accomplished this year? 
 
 #### "on your left!"
-This, by far was my favourite bit of fanservice. Mostly because it follows a _desktop wallpaper worthy_ scene where bruised and beat-up Cap was getting ready to face Thanos' army alone. It also foreshadow's Sam's new role as Captain America, as he was first on the scene and presumably the one with the plan before handing it off to Rogers. 
+This, by far was my favourite bit of fanservice. Mostly because it follows a _desktop wallpaper worthy_ scene where bruised and beat-up Cap was getting ready to face Thanos' army alone. It also foreshadow's Sam's new role as Captain America, as he was first on the scene and presumably the one with the big fight battle plan before handing it off to Steve. 
 
 ## Closing Story Arcs
 

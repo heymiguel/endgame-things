@@ -60,7 +60,7 @@ Sidebar: Mjolnir-Cap was a big moment for a lot of people. Personally (and you c
 
 ## Tidbits that were fun
 
-*rescue!*
+#### rescue!
 I really enjoyed that Pepper got her own suit of armor. It's a reference to when she was given the Rescue armor in the comics (This was Matt Fraction's _BRILLIANT_ Iron Man run).
 
 On a less hype note, I think that the women in Endgame were not given any sort of proper setup or plot application; in many ways they were just window dressing (especially that scene in the final fight which really felt forced), and I was quite disappointed ; a notable example is Evangeline Lily -  having her essentially as Ant-Man's exclamation point really backslid any sort of traction and momentum that previous movies created for her. 
@@ -69,76 +69,65 @@ On a less hype note, I think that the women in Endgame were not given any sort o
 There was an interivew with the Russos that mentioned Stormbreaker not having the same "requirements" as Mjolnir; this is probably how Thanos was able to press the weapon up against the Son of Odin. In IW, Stormbreaker is called a "Kingly Weapon," which may give some clue as to Thanos' status or place amongst the individuals in the MCU. Thanos also can wield infinity stones with relative ease, something that took a half-celestial to do right in Guardians of the galaxy. 
 
 
-*Danver's haircut!*
+#### Danver's haircut!
 People be shittin' on Carol's haircut; this is just an opinion of one - Short hair === hot. 
 
 
-*Hail Hydra*
+#### Hail Hydra
 This is subversion done right. They even got the shot where Crossbones is going for his baton/ sidearm. 
 
-*Casually Solving time travel*
+#### Casually Solving time travel
 Tony Stark solved time travel by spending an extra couple of hours in his garage. How much have you accomplished this year? 
 
-*"on your left!"*
+#### "on your left!"
 This, by far was my favourite bit of fanservice. Mostly because it follows a _desktop wallpaper worthy_ scene where bruised and beat-up Cap was getting ready to face Thanos' army alone. It also foreshadow's Sam's new role as Captain America, as he was first on the scene and presumably the one with the plan before handing it off to Rogers. 
 
 ## Story Arcs
 
 #### Done Poorly
-Black Widow and Hawkeye.
+_Black Widow and Hawkeye_
+Honestly, BW got the shaft in terms of a story arc. Marvel just didn't know what to do with her, from potential love interest to finder of lost teammates to dealing with depression / PTSD, and finally "to finding her purpose with a final sacrifice." Besides, I think Natasha and Clint both got screwed, and could have gotten away with a bit of Infinity Stone Lawyering (more on this later.)
+
+_Hawkeye er *cough* Ronin._
+I get that he lost everyone and became an enraged killer of bad people - but I feel they turned him into Ronin only to get him into the Rule of Cool. I think spearing people from a distance with arrows would have been just as deadly and even more impactful, considering bow usage was foreshadowed early in the movie. Like Ponci said: "He could have done all of that as Hawkeye." 
+
+```
+Infinity Stone Lawyering
+
+To get the soul stone you have to lose something you truly love. 
+I would have loved to see Hawkeye walk up to Red Skull, thrash at him, shoot arrows, or slash him or whatever  saying -
+"Then I have paid this price threefold." 
+Clint lost thrice. 
+
+He's overqualified. 
+
+(this way you get to keep BW alive and resolve her family arc by being with the Avengers as they attend Tony's funeral) 
+
+```
+
 
 #### Done Well
-Cap.
+_Captain America_
+I was 100% sure that Cap would die. When I saw him stand up vs Thanos's army - I *KNEW* this was it. As the man out of time I had always thought the end of his arc would be to join Peggy in the next life. Personally I was happy to be wrong and I think old-cap was a great way to sunset his arc and let someone else take the mantle. 
+
+_Thor_
+
+Ragnarok was the *beginning* of a right and proper character arc for the Son of Odin; in that he is still trying to find his place in the universe. I'm excited to see Asguardians of the Galaxy. 
 
 
 #### Mixed feelings
-Thor. (mostly because Ragnarok really was the turning point for a right and proper characterization of the character)
+_Iron Man._
+Hoooo boy. My fave character and the source of this bias. (Been a fan of shellhead since the very first week Ponci got me into comics) 
 
-Mixed feelings:
-Iron Man.
+Conveniently, we forget that any number of the sorcerors could sling ring the slight-of-handed gauntlet out of Tony's hands, and unto Hulk's good arm. This also sets up the "Hulk vs Thanos" rematch that everyone was begging for, by letting Banner outhink Thanos, saving Tony! Yay!
 
-
-
-
+I know, I know. "You can rest now," Pepper says - which is the real end of his arc to protect the world from everything. I just don't like it when my fave characters _have_ to die. (I'm looking at you, Maximus. (from Gladiator) You should have lived.) 
 
 
 
-## Welcome to GitHub Pages
 
-## this is a second header
+## Conclusion / TLDR;
 
-You can use the [editor on GitHub](https://github.com/heymiguel/endgame-things/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
+To quote Aaron Palabyab (who agreed to be quoted in this piece): "Was wistful half my lifetime ago that I wouldn’t have a movie experience like Return of the King (and LOTR) again." I have the same feeling, A.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/heymiguel/endgame-things/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+As a culmination of 11 years of ups and downs, as a set of movies that i _literally_ grew up with and as a love letter to all the movies previous, Endgame delivers that RoTK feeling - a feeling I thought I would never experience in the cinemas again. 

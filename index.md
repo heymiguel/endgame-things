@@ -148,9 +148,9 @@ I left that theatre feeling mostly happy - the only sadness was when I said to m
 
 
 PS.
-Marvel, please make Fantastic Four part of the MCU. 
+*Marvel, please make Fantastic Four part of the MCU.*
 
-Let me help get the ball rolling: 
+Let me help you get those wheels turning: 
 
 Caught in the middle of the Kree-Skrull war, the Asguardians of the Galaxy get a message over interstellar-comms:
 

@@ -111,6 +111,7 @@ But what do I know, right? :P
 
 #### Done Well
 _Captain America_
+
 I was 100% sure that Cap would die. When I saw him stand up vs Thanos's army - I *KNEW* that was going to be it. As "the man out of time,"  I had always thought the end of his arc would be to join Peggy in the next life. Personally I was happy to be wrong and I think aged-Cap was a great way to sunset his arc and let someone else take the mantle. 
 
 _Thor_
@@ -120,9 +121,10 @@ Ragnarok was the *beginning* of a right and proper character arc for the Son of 
 
 #### Mixed feelings
 _Iron Man._
+
 Hoooo boy. My fave character and the source of this bias. (Been a fan of shellhead since the very first week Ponci got me into comics) 
 
-Conveniently, we forget that any number of the sorcerors could sling ring the slight-of-handed gauntlet out of Tony's hands, and unto Hulk's good arm. This also sets up the "Hulk vs Thanos" rematch that everyone was begging for, by letting Banner outhink Thanos, saving Tony! Yay!
+Conveniently, we forget that any number of the sorcerers could sling ring the slight-of-handed gauntlet out of Tony's hands, and unto Hulk's good arm. This also sets up the "Hulk vs Thanos" rematch that everyone was begging for, by letting Banner outhink Thanos, saving Tony! Yay!
 
 I know, I know. "You can rest now," Pepper says - which is the real end of his arc to protect the world from everything. I just don't like it when my fave characters _have_ to die. (I'm looking at you, Maximus. (from Gladiator) You should have lived.) 
 

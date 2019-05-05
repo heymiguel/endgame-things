@@ -137,4 +137,21 @@ To quote Aaron Palabyab (who agreed to be quoted in this piece): "Was wistful ha
 
 As a culmination of 11 years of ups and downs, as a set of movies that i _literally_ grew up with and as a love letter to all the movies previous, Endgame delivers that RoTK feeling - a feeling I thought I would never experience in the cinemas again; a vast, powrful welling up of your inner nerd - checked only briefly by the social norms of "don't be noisy at the theatre." A movie that's filled with the quotes and moments that I so love to memorize and commit to memory.
 
-I left that theatre feeling mostly happy - the only sadness was 
+I left that theatre feeling mostly happy - the only sadness was when I said to myself: "Now what do I watch?"
+
+
+
+
+
+
+
+
+
+PS.
+Marvel, please make Fantastic Four part of the MCU. 
+
+Let me help get the ball rolling: 
+
+Caught in the middle of the Kree-Skrull war, the Asguardians of the Galaxy get a message over interstellar-comms:
+
+"This is Reed Richards. I have an idea." 

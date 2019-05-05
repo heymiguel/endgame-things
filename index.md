@@ -84,7 +84,7 @@ This, by far was my favourite bit of fanservice. Mostly because it follows a _de
 
 ## Closing Story Arcs
 
-#### Done Poorly
+### Done Poorly:
 _Black Widow and Hawkeye_
 
 Honestly, BW got the shaft in terms of a story arc. Marvel just didn't know what to do with her, from potential love interest to finder of lost teammates to dealing with depression / PTSD, and finally "to finding her purpose with a final sacrifice." Besides, I think Natasha and Clint both got screwed, and could have gotten away with a bit of Infinity Stone Lawyering (more on this later.)
@@ -111,7 +111,7 @@ But what do I know, right? :P
 ```
 
 
-#### Done Well
+### Done Well:
 _Captain America_
 
 I was 100% sure that Cap would die. When I saw him stand up vs Thanos's army - I *KNEW* that was going to be it. As "the man out of time,"  I had always thought the end of his arc would be to join Peggy in the next life. Personally I was happy to be wrong and I think aged-Cap was a great way to sunset his arc and let someone else take the mantle. 
@@ -121,7 +121,7 @@ _Thor_
 Ragnarok was the *beginning* of a right and proper character arc for the Son of Odin; in that he is still trying to find his place in the universe. I'm excited to see Asguardians of the Galaxy. 
 
 
-#### Mixed feelings
+### Mixed feelings:
 _Iron Man._
 
 Hoooo boy. My fave character and the source of this bias. (Been a fan of shellhead since the very first week Ponci got me into comics) 
